@@ -7,6 +7,3 @@
 
 - 📫 How to reach me: 
   Email: zackcrow@rocketmail.com
- 
-- ⚡ Fun fact: ...
-
